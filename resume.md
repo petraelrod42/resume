@@ -3,6 +3,7 @@
 Colorado School of Mines sophomore studying Geophysical Engineering. Aspiring Space Force officer Air Force ROTC Cadet and competitive powerlifter. 
 
 ![Me on the left side of the podium after a recent lifting meet](https://lh3.googleusercontent.com/pw/AP1GczP-nc4mgzClOHPrBgi-QPhl1gao8M2dS78qeenBov0lNUGHhz5AV4hKEucteX8g0U5O6F-1dzhtj0orqxLfWafJ7fRGZWZD2p6QSi61eHAfC_SXxa11qL-r5oM5Fdfp0jzOKuOi2j6-LOG3hPDuJ0xqRw=w1985-h1323-s-no-gm?authuser=0)
+*Me on the left side of the podium after a recent lifting meet*
 
 ## Contact Information:
 - petra_elrod@mines.edu
