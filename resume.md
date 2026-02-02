@@ -29,4 +29,4 @@ Colorado School of Mines sophomore studying Geophysical Engineering. Aspiring Sp
 - Proficient in Java, C++, and Python
 
 ## Links:
-- GitHub Profile: 
+- GitHub Profile: [github.com/petraelrod42](https://github.com/petraelrod42) 
